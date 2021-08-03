@@ -1,7 +1,7 @@
-# Welcome to My Github Page :relaxed:
+# Welcome to My Github Page ☺️
 
 
-## I :heart: to code
+## I ❤️ to code
 
 
 ### Hello 🌎
